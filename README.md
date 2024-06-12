@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @rishiraj1746(Rishiraj)
+# 👋 Hi, I’m @rishiraj1746 (Rishiraj)
 
 ## 👀 About Me
 I am a dedicated and motivated B.Tech Computer Science student. I have a strong passion for data analysis, data science, and developing innovative technology solutions.
