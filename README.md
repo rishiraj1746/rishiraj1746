@@ -18,7 +18,7 @@ I’m looking to collaborate on:
 
 ## 📫 How to Reach Me
 - **LinkedIn**: [Rishiraj](www.linkedin.com/in/rishiraj-175261260)
-- **Twitter**: [@Rishiraj](https://twitter.com/rrishirajverma)
+- **Twitter**: [@rrishirajverma](https://twitter.com/rrishirajverma)
 - **Email**: [rishiraj1746@gmail.com](mailto:rishiraj1746@gmail.com)
 
 ---
