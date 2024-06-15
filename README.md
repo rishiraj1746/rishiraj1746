@@ -17,8 +17,6 @@ I’m looking to collaborate on:
 - Innovative tech projects that solve real-world problems
 
 ## 📫 How to Reach Me
-- **LinkedIn**: [Rishiraj](www.linkedin.com/in/rishiraj-175261260)
-- **Twitter**: [@rrishirajverma](https://twitter.com/rrishirajverma)
 - **Email**: [rishiraj1746@gmail.com](mailto:rishiraj1746@gmail.com)
 
 ---
